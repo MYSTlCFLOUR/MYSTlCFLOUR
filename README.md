@@ -12,6 +12,6 @@
 
 ![line](https://64.media.tumblr.com/9ca84abb608d8ed1961cbc804169e707/19233b1e438b4954-c7/s1280x1920/2ab5d13ac600ebe91d191f7a6f577c2ea23232d1.pnj)
 
-ill put rentry here
+(rentry !)[https://rentry.co/wheatt]
 
 ![divider](https://64.media.tumblr.com/b221c9d6f774738c07748ae0184cbdb0/ea13e559236f3714-3c/s2048x3072/2065f86bfd582cb12daede5358616da107996a83.pnj)
